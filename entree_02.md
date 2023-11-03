@@ -10,7 +10,7 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 ### [Grand Theft Auto V](https://fr.wikipedia.org/wiki/Grand_Theft_Auto_V)
 Selon moi et bien d'autres, cette création multimédia est un véritable chef-d'oeuvre du jeu-vidéo. Ce jeu a été le premier à être officiellement «mon préféré» vers l'âge de 10 ans et il l'est toujours à ce jour. Il a su me passionner par la quasi-infinite liberté qu'on retrouve dans presque tous les aspects du gameplay.      
 
-### Lien 2 
+### [Regular Show­](https://en.wikipedia.org/wiki/Regular_Show)
 Expliquer pourquoi vous avez choisi ce lien.
 
 ### Lien 3 
