@@ -22,3 +22,7 @@ J'ai personnellement pas mal apprécié la conférence qui nous a été présent
 J'ai penser que la conférencière a tenue des propos qui étaient clairs et réfléchis. On a même senti un semblant d'improvisation durant la présentation, cela qui rendait le tout plus naturel et fluide. 
 
 
+Selon moi, la conférencière n'a eu aucune difficulté à nous projeter l'information de façon claire et précise. Les idées étaient bien ordonnées, et la facilité à comprendre les informations en témoignait.
+
+
+Visuellement, la propreté et le professionnalisme de la conférence étaient au rendez-vous, mais sans plus. Ce n'était pas le PowerPoint du siècle, mais le simple fait d'avoir seulement une ou deux phrases par diaporama permettait agilement d'apporter un support visuel non négligeable à la présentation.
