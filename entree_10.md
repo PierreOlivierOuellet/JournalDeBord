@@ -33,3 +33,5 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Est-ce qu'un des domaines du multimédia t'intéresse plus que les autres? 
 
 ### Est-ce que tu as préféré une sortie ou une conférence?
+
+## Réponse (Rétrospective sur la présentation synthèse):
