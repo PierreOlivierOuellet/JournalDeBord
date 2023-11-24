@@ -35,3 +35,41 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Est-ce que tu as préféré une sortie ou une conférence?
 
 ## Réponse (Rétrospective sur la présentation synthèse):
+-
+
+
+-
+
+
+-
+
+
+-
+
+
+-
+
+
+-
+
+
+## Réponse (Rétrospective de ma session):
+-
+
+
+-
+
+
+-
+
+
+-
+
+
+-
+
+
+-
+
+
+-
