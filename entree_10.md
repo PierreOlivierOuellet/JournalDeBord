@@ -60,7 +60,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 - Parmi les nombreux métiers qui touchent au multimédia, dont ceux que nous avons pu aborder en classe, celui de travailler dans le domaine du *Projection mapping* en est peut-être un qui pourrait m'intéresser. Malgré que dans le futur, j'aurais plus tendance à me diriger vers le jeu vidéo, après avoir constater qu'est-ce que la compagnie *Moment Factory* a pu concrétiser, j'avoue que la réalisation de tels projets doit être certainement très gratifiant, en plus d'être une source de développement personnel au sein de l'équipe et de chacun des employés. À mon avis, cela incite forcément à de jeunes travailleurs de vouloir faire partie de leur équipe. 
 
 
--
+- Pour être honnête, bien que nous avons eu la chance d'explorer les domaines du multimédia en long et en large, il n'y a aucun/e artiste qui a su m'inspirer particulièrement. En revanche, plusieurs sujets abordés dans le cadre du cours ont suscités mon intérêt. 
 
 
 -
