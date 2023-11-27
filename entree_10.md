@@ -66,7 +66,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 - Si je me retrouverais à travailler dans le domaine du jeu vidéo, à l'opposé de travailler pour une méga compagnie tel que *Ubisoft*, je préfèrerais probablement plus travailler pour un plus petit studio. En effet, de ce que j'ai appris en classe, ce genre de plus petite entreprise offre l'opportunité aux employés de toucher un peu à tout. Le fait de pouvoir approcher différentes tâches sans être restreint à un seul poste semble plus me convenir. 
 
 
--
+- Parmi tous les domaines du multimédia, celui du jeu vidéo est sans aucun doute celui qui m'intéresse le plus. D'ailleurs, c'est principalement mon attrait pour celui-ci qui m'a orienté dans ma décision de choisir le programme *TIM* d'intégration multimédia.
 
 
 -
