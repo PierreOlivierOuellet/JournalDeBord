@@ -63,7 +63,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 - Pour être honnête, bien que nous avons eu la chance d'explorer les domaines du multimédia en long et en large, il n'y a aucun/e artiste qui a su m'inspirer particulièrement. En revanche, plusieurs sujets abordés dans le cadre du cours ont suscités mon intérêt. 
 
 
--
+- Si je me retrouverais à travailler dans le domaine du jeu vidéo, à l'opposé de travailler pour une méga compagnie tel que *Ubisoft*, je préfèrerais probablement plus travailler pour un plus petit studio. En effet, de ce que j'ai appris en classe, ce genre de plus petite entreprise offre l'opportunité aux employés de toucher un peu à tout. Le fait de pouvoir approcher différentes tâches sans être restreint à un seul poste semble plus me convenir. 
 
 
 -
