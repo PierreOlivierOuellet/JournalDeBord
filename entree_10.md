@@ -69,4 +69,4 @@ Quelle présentation avez-vous préféré et pourquoi?
 - Parmi tous les domaines du multimédia, celui du jeu vidéo est sans aucun doute celui qui m'intéresse le plus. D'ailleurs, c'est principalement mon attrait pour celui-ci qui m'a orienté dans ma décision de choisir le programme *TIM* d'intégration multimédia.
 
 
--
+- Même si j'ai pensé que la conférence était aussi intéressante qu'enrichissante, je dois dire que j'ai définitivement préféré la sortie, surtout pour son aspect *FUN*. D'autant plus que la sortie qui a été votée par la classe était celle de l'Escaparium, j'ai eu plus de plaisir à ce à quoi je m'attendais et c'est pourquoi je vais sûrement y retourner en famille ou avec des amis.
