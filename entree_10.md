@@ -50,7 +50,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 -
 
 
--
+- Compte tenu de la situation avec la grève, nous avons malheureusement pas eu la chance d'assister aux présentations des autres équipes. De ce fait, nous n'avons pas pu désigner une présentation comme étant notre préférée.
 
 
 ## Réponse (Rétrospective de ma session):
