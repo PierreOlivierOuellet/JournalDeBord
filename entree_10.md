@@ -41,7 +41,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 -
 
 
-- Nous avons relativement bien géré notre temps lors de la création de notre Powerpoint. En effet, comme lors de la création de notre tableau sur Trello, nous avons progressé en travaillant de jour en jour sur nos tâches. Cela nous a permis de répertorier le travail à faire dans l'équipe de façon efficace. Nous avons également utilisé la fonction d'appel vocal sur Teams afin de travailler en synchro.
+- Nous avons relativement bien géré notre temps lors de la création de notre Powerpoint. En effet, comme lors de la création de notre tableau sur Trello, nous avons progressé en travaillant de jour en jour sur nos tâches. Cela nous a permis de répertorier le travail à faire dans l'équipe de façon efficace.
 
 -
 
@@ -49,7 +49,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 -
 
 
-- Compte tenu de la situation avec la grève, nous avons malheureusement pas eu la chance d'assister aux présentations des autres équipes. De ce fait, nous n'avons pas pu désigner une présentation comme étant notre préférée.
+- Compte tenu de la situation avec la grève, nous avons malheureusement pas eu la chance d'assister aux Powerpoints des autres équipes. De ce fait, nous n'avons pas pu désigner un Powerpoint comme étant notre préféré.
 
 
 ## Réponse (Rétrospective de ma session):
