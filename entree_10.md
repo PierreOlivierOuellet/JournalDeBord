@@ -43,7 +43,8 @@ Quelle présentation avez-vous préféré et pourquoi?
 
 - Nous avons relativement bien géré notre temps lors de la création de notre Powerpoint. En effet, comme lors de la création de notre tableau sur Trello, nous avons progressé en travaillant de jour en jour sur nos tâches. Cela nous a permis de répertorier le travail à faire dans l'équipe de façon efficace.
 
--
+
+- La fonction d'appel vocal sur Teams a été un outil indispensable durant la création de notre Powerpoint. Le fait de pouvoir communiquer de cette manière nous a grandement aidé puisqu'elle nous permettait de travailler de façon synchronisée. Aussi, à la place d'utiliser Canva comme logiciel de présentation, nous avons opté pour celui de Microsoft dû à sa simplicité.  
 
 
 -
