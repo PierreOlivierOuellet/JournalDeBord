@@ -35,7 +35,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Est-ce que tu as préféré une sortie ou une conférence?
 
 ## Réponse (Rétrospective sur la présentation synthèse):
--
+- Les éléments du Powerpoint sont bien organisés en général. Nos informations ainsi que nos inspirations proviennent de sources véridiques.
 
 
 -
@@ -47,7 +47,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 - La fonction d'appel vocal sur Teams a été un outil indispensable durant la création de notre Powerpoint. Le fait de pouvoir communiquer de cette manière nous a grandement aidé puisqu'elle nous permettait de travailler de façon synchronisée. Aussi, à la place d'utiliser Canva comme logiciel de présentation, nous avons opté pour celui de Microsoft dû à sa simplicité.  
 
 
--
+- Nous avons en effet rencontré quelques difficultés. La première concerne les blocs de textes que nous avons placés dans notre Powerpoint. À cause de la quantité de texte, les blocs débordaient un peu trop. La deuxième difficulté rencontrée était lorsqu'est venu le temps d'innover. Avec tout les différents jeux vidéos qui existe aujourd'hui, ce n'était pas une tâche facile.
 
 
 - Compte tenu de la situation avec la grève, nous avons malheureusement pas eu la chance d'assister aux Powerpoints des autres équipes. De ce fait, nous n'avons pas pu désigner un Powerpoint comme étant notre préféré.
