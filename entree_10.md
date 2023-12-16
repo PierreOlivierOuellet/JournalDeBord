@@ -35,10 +35,10 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Est-ce que tu as préféré une sortie ou une conférence?
 
 ## Réponse (Rétrospective sur la présentation synthèse):
-- Les éléments du Powerpoint sont bien organisés en général. Nos informations ainsi que nos inspirations proviennent de sources véridiques.
+- Les éléments du Powerpoint ont été bien organisés en général. Nos informations ainsi que nos inspirations sont provenus de sources véridiques.
 
 
--
+- Il y a plusieurs points à améliorer, cependant, en voici deux des plus importants: selon moi, même si le style artistique de notre Powerpoint est en lien avec notre jeu (puisqu'il se déroule au Japon), les couleurs utilisées dans notre Powerpoint auraient pu être plus sombres et donc plus représentatives de celles utilisées dans notre jeu. Il y a aussi l'ergonomie du Powerpoint en général qui aurait pu être revisée. Pour la prochaine fois, il suffirait de se mettre plus à la place de l'auditeur qui regarde et écoute, afin de s'adapter à ces besoins lors de la création d'un autre Powerpoint dans le futur. 
 
 
 - Nous avons relativement bien géré notre temps lors de la création de notre Powerpoint. En effet, comme lors de la création de notre tableau sur Trello, nous avons progressé en travaillant de jour en jour sur nos tâches. Cela nous a permis de répertorier le travail à faire dans l'équipe de façon efficace.
