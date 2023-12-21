@@ -29,3 +29,5 @@ Où vous voyez-vous dans 5 ans?
 
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire. 
+
+- Un projet que j'aimerais bien réaliser peut-être un jour serait de participer à la conception d'un jeu vidéo qui serait connu et acclamé pour les nombreux prix qui lui auront été désignés. 
