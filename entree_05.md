@@ -9,8 +9,12 @@ Nommer deux points forts de votre préparation à l'examen.
 ### Points à améliorer
 Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. 
 
+- Il serait définitivement en mon avantage de réellement étudier avant un prochain examen. Il ne suffirait que de consulter les notes de cours qui sont mis à notre disposition sur Teams par notre professeur. Je pense qu'une simple étude de 15 minutes par soir, à quelques jours de l'examen, est assez si on veut bien performer le jour du test.
+
 ### Gestion du temps
 Comment avez-vous géré votre temps lors de l'examen?
+
+- Je dirais que j'ai assez bien géré mon temps durant l'examen. En effet, j'ai pris le temps de bien répondre aux questions en faisant attention de ne faire aucunes erreurs d'inattention. Même si je suis un élève qui prend plus de temps que les autres en général, je me suis assuré de compléter le questionnaire ainsi que de faire la remise avant la fin du temps limite.
 
 ### Outils et ressources
 Quels outils et ressources avez-vous utilisés pour la préparation à l'examen?
