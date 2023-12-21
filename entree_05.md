@@ -19,6 +19,8 @@ Comment avez-vous géré votre temps lors de l'examen?
 ### Outils et ressources
 Quels outils et ressources avez-vous utilisés pour la préparation à l'examen?
 
+- Étant donné que je n'ai pas fait d'études en provenance de l'examen, l'unique ressource qui m'a permis de réussir le test a été le bon enseignement de mon professeur. 
+
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
 
