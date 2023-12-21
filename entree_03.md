@@ -14,6 +14,8 @@ Parlez de vos intérêts en multimédia.
 ### Emplois qui vous intéressent
 Nommez deux emplois.
 
+- N'importe quel poste dans une compagnie de création de jeux vidéos. Peut-être photographe pour une compagnie qui en aurait besoin.
+
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
 
