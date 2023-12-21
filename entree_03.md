@@ -14,10 +14,13 @@ Parlez de vos intérêts en multimédia.
 ### Emplois qui vous intéressent
 Nommez deux emplois.
 
-- N'importe quel poste dans une compagnie de création de jeux vidéos. Peut-être photographe pour une compagnie qui en aurait besoin.
+- N'importe quel poste dans une compagnie de création de jeux vidéos.
+- Peut-être photographe pour une compagnie qui en aurait besoin.
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+
+- Une entreprise à laquelle je m'identifie en tant qu'admirateur de leur travail est Rockstar Games, simplement parce que leurs jeux regorge de contenus et sont toujours complets et bien peaufinés, autant pour leurs riches histoires que leurs gameplay inspirés. Je n'ai pas forcément d'artiste qui me vient en tête alors voilà.
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
