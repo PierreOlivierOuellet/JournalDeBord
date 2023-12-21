@@ -4,17 +4,17 @@
 ### Présentation
 Parlez de vous. 
 
-- Bonjour, je m'appelle Pierre-Olivier. Je suis un garçon de 18 ans qui aime à peu près tout ce qui touche à l'univers du multimédias.
+- Bonjour, je m'appelle Pierre-Olivier. Je suis un garçon de 18 ans qui aime à peu près tout ce qui touche à l'univers du multimédia.
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
 
-- J'aime principalement les jeux vidéos mais aussi le montage photo/vidéo ainsi que la photographie. 
+- J'aime principalement les jeux vidéo mais aussi le montage photo/vidéo ainsi que la photographie. 
 
 ### Emplois qui vous intéressent
 Nommez deux emplois.
 
-- N'importe quel poste dans une compagnie de création de jeux vidéos.
+- N'importe quel poste dans une compagnie de création de jeux vidéo.
 - Peut-être photographe pour une compagnie qui en aurait besoin.
 
 ### Identification
@@ -24,6 +24,8 @@ Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez p
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
+
+- Je me vois peut-être à l'université, si j'ai besoin d'y aller. Sinon, si j'ai fini mon parcours au cégep, peut-être débutant dans une petite compagnie de jeux vidéo, qui sait?
 
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire. 
