@@ -4,6 +4,8 @@
 ### Présentation
 Parlez de vous. 
 
+Bonjour, je m'appelle Pierre-Olivier et j'aime à peu près tout ce qui touche à l'univers du multimédias. J'aime principalement les jeux vidéos mais aussi le montage photo/vidéo ainsi que la photographie.
+
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
 
