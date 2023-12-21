@@ -24,3 +24,4 @@ Quels outils et ressources avez-vous utilisés pour la préparation à l'examen?
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
 
+- La seule difficulté que j'ai rencontré pendant l'examen, en plus d'être mes seules fautes..., concernait les questions qui portaient sur les disques durs NVME et SATA. Malheureusement pour moi, il y avait une certaine suite logique entre les quelques questions qui portaient sur ces composants. Alors après avoir mal répondu à une de ces questions, suivant ma logique de la réponse précédente, je n'ai pas eu bon aux prochaines. Heureusement, j'ai eu de la facilité à répondre aux autres questions, grâce aux notions de la matière que j'avait bien retenu suite aux cours précédents.
